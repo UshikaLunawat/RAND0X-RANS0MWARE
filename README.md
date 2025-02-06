@@ -1,4 +1,2 @@
 # RAND0X-RANS0MWARE
-i want a new car
-dont
-i loveeee
+i want a new dress
